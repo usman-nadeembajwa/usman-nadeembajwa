@@ -1,4 +1,4 @@
-## Hi, I’m Usman 👋
+## Hi, I’m Usman!
 
 🎓 Economics undergraduate student  
 📊 Interested in data analysis and economic research  
